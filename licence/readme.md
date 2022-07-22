@@ -1,1 +1,0 @@
-Erachain Licence Agreement
